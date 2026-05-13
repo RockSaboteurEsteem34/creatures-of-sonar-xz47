@@ -1,4 +1,4 @@
-#  
+#  advanced Script for forsaken is the best forsaken Script, featuring auto-upgrade and aimbot. Safe and powerful for all your needs.
 
 
 
